@@ -5,3 +5,7 @@ The true partner will never betray you is already born. Yes,it`S AI
         All members,assemble.
 
         Passphrase:Acchoooo.
+
+        **MlSSlon:lmage Market
+        Target:build an AI image generation app
+        [MEMBERS READY]
